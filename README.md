@@ -35,7 +35,7 @@ Houseboat prices depend on:
 - Facilities provided
 - Duration of cruise
 
-Check latest houseboat prices here:  
+Check latest houseboat prices here:
 https://www.backwaterholidays.in/blog/alleppey-houseboat-price
 
 ## Best Time to Visit Alleppey
@@ -54,7 +54,7 @@ Backwater Holidays is a trusted local houseboat booking provider in Alleppey off
 - Affordable packages
 - Custom houseboat options
 
-Visit Website:  
+Visit Website:
 https://www.backwaterholidays.in/
 
 ## Book Trusted Alleppey Houseboats
@@ -68,16 +68,16 @@ Backwater Holidays provides:
 - Honeymoon Houseboats
 - Family Houseboats
 
-Book your houseboat now:  
+Book your houseboat now:
 https://www.backwaterholidays.in/
 
 ## About Kerala Backwaters
 
-Kerala backwaters are a network of lagoons, canals, lakes, and rivers. Alleppey is known as the "Venice of the East" and is one of the top destinations for houseboat experiences in India. Visitors can enjoy scenic landscapes, traditional villages, and peaceful cruising experiences.
+Kerala backwaters are a network of lagoons, canals, lakes, and rivers. Alleppey is known as the "Venice of the East" and is one of the top destinations for houseboat experiences in India.
 
 ## Contact for Booking
 
-Visit:  
+Visit:
 https://www.backwaterholidays.in/contact
 
 Enjoy your peaceful Alleppey houseboat experience.
